@@ -194,7 +194,7 @@ As of **May 2025**, 1Password occasionally runs promotional offers and provides 
 ### 🎁 Active Coupon Codes & Offers
 
 <a href="https://afftrend.com/1password">
-  <img src="https://drive.google.com/uc?export=view&id=1D8fxjZbfCX7gnj9P73AQPdN6nrAKuFtX" alt="Surfer SEO Overview 2025">
+  <img src="https://drive.google.com/uc?export=view&id=1D8fxjZbfCX7gnj9P73AQPdN6nrAKuFtX" alt="Surfer SEO Pricing">
 </a>
 
 | Coupon Code        | Discount                     | How to Use                                                   | Expiry       |
@@ -211,6 +211,10 @@ As of **May 2025**, 1Password occasionally runs promotional offers and provides 
 ## 5. 1Password Free Trial Offer 2025
 
 Yes, 1Password **offers a free 14-day trial** for all its plans, including personal, family, and business accounts.
+
+<a href="https://afftrend.com/1password">
+  <img src="https://drive.google.com/uc?export=view&id=1PDwg7e6UT_xTn1Mbjbkum58dhUu1zuVP" alt="Surfer SEO Overview 2025">
+</a>
 
 ### 🔓 Free Trial Details
 
