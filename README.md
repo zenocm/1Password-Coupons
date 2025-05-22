@@ -1,4 +1,4 @@
-# 1Password Coupon Codes, Free Trial and Offers 2025
+# 1Password Coupon Codes 2025 (Free Trial and Offers)
 
 Let's be honest, keeping track of dozens of unique, strong passwords feels almost impossible, right? If you find yourself reusing the same login details across multiple websites – you're not alone. Studies show well over half of us do it!
 
