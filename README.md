@@ -193,7 +193,7 @@ That's exactly where [1Password](https://1password.com) comes in as a lifesaver.
 
 As of **May 2025**, 1Password occasionally runs promotional offers and provides discounts for new users or via affiliate partners. Here are a few available deals:
 
-### 🎁 Active Coupon Codes & Offers
+### 🎁 Trending Coupon Codes & Offers
 
 <a href="https://afftrend.com/1password">
   <img src="https://drive.google.com/uc?export=view&id=1D8fxjZbfCX7gnj9P73AQPdN6nrAKuFtX" alt="Surfer SEO Pricing">
